@@ -1,1 +1,1 @@
-![.](kaidacanon.png)
+![.](alot.png)
